@@ -1,4 +1,4 @@
-### Hi there 👋
+### Nice to meet you, my name is Talina Nguyen, but you can also call me Tali 🫧
 #
 - 🔭 I am looking to major in Cognitive Sciences 🧠 with a CS or STS double major 🤓 (undecided) 
 - 🌱 I’m currently learning how to get out of my shell more and meet new people, French 🇫🇷, and how to crochet! 
