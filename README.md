@@ -1,4 +1,4 @@
-### Nice to meet you, my name is Talina Nguyen
+### Nice to meet you! My name is Talina Nguyen.
 #
 - 📍 I am currently attending Colby College in Waterville, ME, and I was born and raised in Houston, TX ✈️
 - 🔭 I am looking to major in Cognitive Sciences 🧠 with a CS or STS double major 🤓 (undecided) 
