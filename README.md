@@ -6,5 +6,5 @@
 - 💬 Ask me about my online clothing shop! 🛍️ I run a small business where I rehome vintage clothing :) https://depop.app.link/talisthreadz
 - 📫 How to reach me: thnguy27@colby.edu and @talinawin on all socials!
 - 😄 Pronouns: she/her 🎀
-- ⚡ Fun fact: I am OBSESSED with Stitch from Lilo and Stitch, cats 🐈, strawberries 🍓, bears 🧸, and cute bugs 🐛 
+- ⚡ Fun facts: I am OBSESSED with Stitch from Lilo and Stitch, cats 🐈, strawberries 🍓, bears 🧸, and cute bugs 🐛 
 
